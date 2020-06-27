@@ -8,3 +8,10 @@ Lieblingsorte sind Bällebäder. Flauschies trinken gern Mate, Kaffee oder aus R
 bogen-Flüssen.
 Sein Personal ist ihm stets zu Diensten, sorgt für entspannten Transport und ein-
 horngerechte Verpflegung: Beliebt sind Kuchen, Sushi und Pizza.
+
+## Besondere Eigenschaften
+
+* flausch-besessen
+* immer hungrig
+* ausgeprägte Waschmaschinen-Phobie
+* Nebentätigkeit: Hotels testen
