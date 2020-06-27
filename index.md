@@ -19,5 +19,11 @@ horngerechte Verpflegung: Beliebt sind Kuchen, Sushi und Pizza.
 ## Flauschehorn Zitate:
 
 > Happs? Happs!
+
 > Ich mag Museen. Die haben immer so viel Cyber mit so viel Möglichkeiten da.
+
 > Wir haben die Behausung verlassen, um das Leben in vollen Zügen zu genießen.
+
+## Selfie
+
+<img src="https://chaos.social/system/media_attachments/files/005/148/547/original/2da02ac10a795839.jpg"/>
