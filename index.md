@@ -15,3 +15,9 @@ horngerechte Verpflegung: Beliebt sind Kuchen, Sushi und Pizza.
 * immer hungrig
 * ausgeprägte Waschmaschinen-Phobie
 * Nebentätigkeit: Hotels testen
+
+## Flauschehorn Zitate:
+
+> Happs? Happs!
+> Ich mag Museen. Die haben immer so viel Cyber mit so viel Möglichkeiten da.
+> Wir haben die Behausung verlassen, um das Leben in vollen Zügen zu genießen.
